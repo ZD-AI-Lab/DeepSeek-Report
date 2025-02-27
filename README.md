@@ -8,3 +8,10 @@
 
 ## DeepSeek完全实用手册V2.0
 进行中
+
+## 关于我们
+![image](https://github.com/user-attachments/assets/7dde02a3-39b3-4135-bdb9-33315bafc2c1)
+
+## 业务联系
+![image](https://github.com/user-attachments/assets/33e601ed-290d-4533-9c17-ae897bd88a97)
+
